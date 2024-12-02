@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alexis-Rachelle Ramelb
-- 💻 Computer Science
+- 💻 Computer Science major
 - 📚 Chaminade University
 - 📫 Honolulu, HI
 
